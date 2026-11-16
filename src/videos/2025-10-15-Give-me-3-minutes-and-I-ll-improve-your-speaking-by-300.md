@@ -1,0 +1,17 @@
+# Give me 3 minutes, and I'll improve your speaking by 300%
+
+- Date: 2025-10-15
+- Length: 3 min
+- URL: https://www.youtube.com/watch?v=8UcSbFfq2XE
+- Captions: youtube-en-orig
+- Role in this wiki: lesson
+
+Caption text below. Slips in the caption stay as captioned. Commentary videos mix his remarks with the other speaker's words. Coaching videos do not label who is speaking.
+
+[Catalog](../videos.md) · [Big picture](../index.md)
+
+It's called rhetorical play and I want to give you a demonstration of this at the end of this video. Rhetorical play is a technique used by famous orators and any of your famous online speakers to increase persuasion and power when you speak and to make sure that you're never unprepared when you give an answer. And it's based on the idea that the chief quality people find attractive in a speaker and a communicator is playfulness with your speech. It's your ability to kind of flirt with your own ideas. And people are attracted to this kind of an explorer because this person might just lead them somewhere they've never been before. And you can have that explorative playful quality by asking rhetorical questions. This increases playfulness with your speech. What do I mean by this? Well, the rhetorical question is a question that you ask not because you want an answer, but because the question itself makes a point and you ask it to yourself. And I'm actually going to give you my special list here in a moment that is going to change the way that you speak. My list of rhetorical questions. An example might be, well, who doesn't like giraffes?
+
+Like, you're not expecting anyone to raise your hand. You're using a question to highlight an idea. Why do these matter? Well, because people want to see you having fun with your ideas. And if you can reflect back on the point that you just made with a rhetorical question, it re-engages people and it steps you out of this very linear way of speaking that most people default to. Most people view speech like a chess match. Strategy, mental models, frameworks, the old way. Line up a point and then follow it with another point and then say something that strikes like lightning. And it can work, but it it makes you only as good as the script that you follow. You never really build confidence in yourself to be able to figure out your thinking as you go. You never step into the wild. And communication is very much a wild jungle. And so rhetorical play solves this. If you can learn to ask questions in the moment, you'll never be unprepared. Why does this matter? What's the story here? What's missing? What's missing?
+
+These are examples that come from this list. And this is a list that I've collected from history's greatest speakers and interviews and podcasts. And you can download this list below. Screenshot it, put it on your phone, lock screen, tattoo it on your forum, I don't care. Whatever you need to do. This will give you the key to unlocking a playful spirit in your speaking. And the reason why this makes you a better communicator because it builds trust with yourself. You begin to believe that I can figure out as I go because I can ask myself questions and I've got the best questions in my back pocket. It makes you flexible, spontaneous, and magnetic as a speaker. If you want a demo of this, just watch this video back from the beginning. I've used a dozen rhetorical questions in this video. Hope it helps.

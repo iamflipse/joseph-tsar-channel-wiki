@@ -1,0 +1,29 @@
+# Orson Welles Delivers Cinema's FINEST Monologue
+
+- Date: 2023-07-10
+- Length: 8 min
+- URL: https://www.youtube.com/watch?v=te9unTUzPU4
+- Captions: youtube-en-orig
+- Role in this wiki: commentary
+
+Caption text below. Slips in the caption stay as captioned. Commentary videos mix his remarks with the other speaker's words. Coaching videos do not label who is speaking.
+
+[Catalog](../videos.md) · [Big picture](../index.md)
+
+We're about to watch a scene from the 1975 documentary F for Fake. Orson Welles in this film delivers a monologue in a scene that many consider to be one of the most profound and beautiful sequences in cinematic history. Let's watch and then we'll discuss. Now, this has been standing here for centuries. The premier work of man perhaps in the whole Western world. And it's without a signature. Chartres. A celebration to God's glory and to the dignity of man. Well, all that's left, most artists seem to feel these days, is man.
+
+Naked. Poor forked radish. There aren't any celebrations. Ours, the scientists keep telling us, is a universe which is disposable. You know, it might be just this one anonymous glory of all things. This rich stone forest. This epic chant. This gaiety. This grand quiring shout of affirmation. Which we choose when all our cities are dust to stand intact to mark where we have been. To testify to what we had it in us to accomplish. Our works in stone, in paint, in print are spared, some of them for a few decades or a millennium or two, but everything must finally fall in war or wear away into the ultimate and universal ash. The triumphs and the frauds. The treasures and the fakes. A fact of life.
+
+We're going to die. Be of good heart. Cry the dead artists out of the living past. Our songs will all be silenced. But what of it? I want to pause here to talk through this and we'll play the remainder of this at the end of this video. I think what Orson says is brilliantly profound. I say that in all sincerity, not just for reaction fodder but because it really speaks to how far we have strayed from carefully choosing our words and engaging our cerebral horsepower in viewing what often are concrete defined structures. I mean that both physically and figuratively.
+
+And viewing them from different angles and perspectives. The Chartres Cathedral, which is the topic of focus in Welles' monologue that he gives. He makes several points about it. One, it's without signature. The premier work of man perhaps in the whole Western world. And it's without a signature. Now, do we know who was involved in the construction of this beautiful building of Gothic architecture? We do. We have records. But the existence of this building transcends one mere life. It is a stamp that humanity has been here and has done great things and has created something awe-inspiring and beautiful. I don't know why that's so profound. I suppose at a fundamental level reminds us of our insignificance. I love Orson's descriptions. He wrote the script for this documentary. His description forked radish is a reference to a quote from Shakespeare.
+
+The descriptions that Welles uses rich stone forest. I love when we take something that is very cemented in society's lexicon. A building, for example, is a building. It's a concrete structure that's been cleverly devised and designed to be successful in whatever purpose it's raised to serve. An office building, for example. And I love when artists and authors and writers creatively I'm going to use the word misinterpret because I think there's truth to that. Misinterpret something in order to give us a fresh new perspective.
+
+It's a playful creativeness with language where we can employ new ways of looking through what often are dull, ordinary, and banal. Orson does this. This gaiety. This grand quiring shout of affirmation. Which we choose when all of our cities are dust to stand intact to mark where we have been to testify to what we had it it in us to accomplish. Something about that sentence is melodious and magical. There's alliteration involved. This gaiety. This grand. It's this climactic build-up of I don't know exactly what it is, but I can feel it. Our works in stone, in paint, in print are spared, some of them for a few decades or a millennium or two, but everything must finally fall in war or wear away into the ultimate and universal ash.
+
+Orson in this sentence that we just read uses a lot of alliteration. The repetition of consonants or vowels to make what you say sound melodious and musical and magical, arguably. He says, "Paint in print are spared." You've got P there. "Some of them for a fair few decades or millennium or two, but everything must finally fall in war or wear away." There's W. "Into the ultimate and universal ash." There's U. And then reading on, "The triumphs and the frauds." So you've got T and F. "And the treasures and the fakes." Another set of T's and F's. "A fact of life." "We're going to die." "Be of good heart. Cry the dead artists out of the living past." I don't know why I like that so much and I know there's a rhetorical device that explains what rhetorical mastery is being employed there.
+
+I'll have to look into that further. "Our songs will all be silenced." And I love the way he says this, "But what of it?" Our songs will all be silenced. But what of it? One thing I will say about Orson Welles and the way that he often delivered speeches and films is that he cared about his words. He had a calculated weight and consideration for what he said. He wasn't afraid to pause. He was very brash and bold in what he said. He wasn't afraid to be controversial both in the message of his films and in the opinions and answers and reinterpretations of the questions that he was often asked. Let's close out this speech with this final clip. Our songs will all be silenced.
+
+But what of it? Go on singing. Maybe a man's name doesn't matter all that much.

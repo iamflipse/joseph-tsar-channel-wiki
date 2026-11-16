@@ -1,0 +1,7 @@
+[book]
+title = "Joseph Tsar: The Speaking Channel"
+authors = ["iamflipse"]
+description = "Plain-language wiki of 99 long-form YouTube videos from Joseph Tsar on speaking, 2023 to 2026."
+
+[build]
+charset = "utf-8"
